@@ -1,1 +1,1 @@
-# Yusufahmad45-https-github.com-Yusufahmad45-nitda-blockchain-scholarship
+https://github.com/Yusufahmad45/nitda-blockchain-scholarship.git
